@@ -1,0 +1,2 @@
+* goma de tapioca
+* queijo
